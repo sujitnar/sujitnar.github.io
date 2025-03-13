@@ -1,6 +1,7 @@
 # Sujit Narayanan 
 
-![WhatsApp Image 2025-03-13 at 05 41 11](https://github.com/user-attachments/assets/9680bf83-5e99-4dc6-b6b3-398f65b6e9d9)
+![image](https://github.com/user-attachments/assets/65138336-e42c-40be-bc90-31d1e1c2c0d6)
+
 
 
 
