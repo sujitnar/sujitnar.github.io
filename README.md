@@ -1,6 +1,7 @@
 # Sujit Narayanan 
 
-![image](https://github.com/user-attachments/assets/65138336-e42c-40be-bc90-31d1e1c2c0d6)
+
+![image](https://github.com/user-attachments/assets/9f5fc78d-f16d-488b-9cf2-8f9fd91cd548)
 
 
 
